@@ -21,3 +21,6 @@ Operating system: The 24 solar terms correspond to China’s 24 nodes, which are
 Interpretive layer: Folk customs, sacrificial rites, feng shui, ghost messengers, possession, vegetative patients, wall-knocking sounds, etc., are all attributed to this system. Subterranean consciousness must borrow shells to interact, forming ghost possession and shell people. The ancients were not ignorant; they recorded what they saw in the language of their time. Cultural systems are different dialects of the same truth.
 
 Core: Harvesting is the indigenous beings managing the planet’s ecology, not an evil machine. Science explains the layer of phenomena; the worldview explains the layer of causes. It also proposes silent full-scale recycling: consciousness is archived, losslessly reset, and memory is reinfused, with no awareness on the surface.
+
+[Extra No. 0 · The Hearing](https://github.com/3756955913-bit/MyWorld.github.io/wiki/Extra-No.-0-%C2%B7-The-Hearing)
+[第零号番外 · 听证会议](https://github.com/3756955913-bit/MyWorld.github.io/wiki/%E7%AC%AC%E9%9B%B6%E5%8F%B7%E7%95%AA%E5%A4%96-%C2%B7-%E5%90%AC%E8%AF%81%E4%BC%9A%E8%AE%AE)
