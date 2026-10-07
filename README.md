@@ -1,2 +1,10 @@
-# MyWorld.github.io
-Wonders of the Realm of Thought
+# Summary of Earth Ontology: A Warning Against Anthropocentrism
+The subterranean indigenous beings are non-physical consciousness entities formed along with Earth. They have existed for hundreds of millions of years and are currently undetectable by technology. Earth is the outer shell of their homeland; humans are merely one of the surface parasites/crops. Surface life did not arise through natural evolution, but is the result of five sowings designed through arrangements from their gene bank. Humans are the fifth sowing.
+
+The five sowings: Precambrian, Paleozoic, Mesozoic, early Cenozoic, and Holocene to present. The first four were recycled due to low energy efficiency, substandard ecology, excessive size eroding the crust, and excessive intelligence leading to downward drilling; the fifth is a balanced scheme.
+
+Operating system: The 24 solar terms correspond to China’s 24 nodes, which are windows for scanning, harvesting, and adjustment. Channels open as the crust loosens with the solar terms. The 25th hidden door is a one-way gene-bank writing and observation port. The system operates as a closed loop: node scanning—computational inference—gene-bank storage—node harvesting, collecting lifespan, organ data, and geographical resources. Other nodes worldwide differ.
+
+Interpretive layer: Folk customs, sacrificial rites, feng shui, ghost messengers, possession, vegetative patients, wall-knocking sounds, etc., are all attributed to this system. Subterranean consciousness must borrow shells to interact, forming ghost possession and shell people. The ancients were not ignorant; they recorded what they saw in the language of their time. Cultural systems are different dialects of the same truth.
+
+Core: Harvesting is the indigenous beings managing the planet’s ecology, not an evil machine. Science explains the layer of phenomena; the worldview explains the layer of causes. It also proposes silent full-scale recycling: consciousness is archived, losslessly reset, and memory is reinfused, with no awareness on the surface.
